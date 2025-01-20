@@ -1,5 +1,4 @@
 - X Hi, I’m @ShaswatXPhantom
-- X I’m interested in making MONEY
 - X I’m currently learning Python
 - X I'm 13 now
 - X I've learnt basic and advance so far
